@@ -1,1 +1,0 @@
-# 5DS1-G3-KADDEM
